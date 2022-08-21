@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to New Life in Christ Ministry Kossoh Town Chapter
 
 You can use the [editor on GitHub](https://github.com/AlphaDumbuya/NLICM-Kossoh-Town-Chapter/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
